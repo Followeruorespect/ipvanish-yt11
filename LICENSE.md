@@ -1,4 +1,4 @@
-
+new IPVanish Client | 24/7-support + end-to-end-encryption offers the most advanced IPVanish client, with 24/7-support and end-to-end-encryption. Ideal for users who value privacy
 
 
 
